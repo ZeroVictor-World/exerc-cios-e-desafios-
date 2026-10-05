@@ -1,1 +1,1 @@
-# exerccios-e-desafios-
+# exercios-e-desafios-
